@@ -8,7 +8,6 @@
 - 📫 How to reach me **yw6636@gmail.com**
 
 - ⚡ Fun fact **I learned how to beatbox to impress a girl**
-  **I work as a part-time healthcare provider**  
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
