@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **yw6636@gmail.com**
 
-- ⚡ Fun fact **I learned how to beatbox to impress a girl that I had a crush on**
+- ⚡ Fun fact **I learned how to beatbox to impress a girl**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
